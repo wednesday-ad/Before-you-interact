@@ -1,2 +1,3 @@
 # Before-you-interact
-![https://i.postimg.cc/LX97r9RW/IMG-5637.gif]()
+![](https://i.postimg.cc/LX97r9RW/IMG-5637.gif)
+Hello, I'm Wednesday, an alter in a DID system. (Collective account @blackpawz) I'm socially withdrawn, emotionally avoidant, and struggle with empathy; but I will not intentionally hurt you. I'm autistic, I'm not a monster. **I will not initiate conversations**, but I have no problem responding to them. (Do not expect me to reach out daily, because I won't.) I am known to speak in a negative light, as I am pessimistic, but that is just how I speak and does not represent my mood. (For reference I often use, "It wasn't bad," over, "It was good.")
